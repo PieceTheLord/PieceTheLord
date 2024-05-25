@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with curious and enthusiast developers!
 - 📫 How to reach me
 - 1. 
-- ⚡ Fun fact:
+⚡ Fun fact:
         1. Know two languages one of that is English(B1 - B2) 
         2. Programming since eleven years, but with big amount of break and burn out
         3. Love learning something new 
