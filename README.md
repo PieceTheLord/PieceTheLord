@@ -6,7 +6,7 @@
 - 1. 
 ⚡ Fun fact:
   1. Know two languages one of that is English(B1 - B2)
-  2. Programming since eleven years, but with big amount of break and burn out
+  2. Programming since eleven years
   3. Love learning something new
 
 
