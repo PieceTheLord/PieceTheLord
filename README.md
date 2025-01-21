@@ -4,7 +4,7 @@
 - 💞️ I’m looking for friendly and active developers to talk and improve together!
 - 📫 How to reach me:
   1. Gmail: ganner1203@gmail.com;
--⚡ Fun fact:
+- ⚡ Fun fact:
   1. Know two languages one of that is English(B1 - B2)
   2. Programming since eleven years
   3. Love learning something new
